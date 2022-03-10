@@ -1,5 +1,5 @@
 ### Hi there 👋
-### Out of the ordered universe, in the formless chaos
+### Out of the ordered universe, in the amorphous confusion
 
 
 <!--
