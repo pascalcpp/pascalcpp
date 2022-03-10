@@ -1,4 +1,3 @@
-### Hi there 👋
 ### Out of the ordered universe, in the amorphous confusion
 
 
